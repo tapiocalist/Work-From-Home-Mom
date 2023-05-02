@@ -1,4 +1,8 @@
-## 医院检查准备 
+ 
+> 原文地址 [mp.weixin.qq.com](https://mp.weixin.qq.com/s?__biz=MzIwMzA5NTI3NQ==&mid=2649902246&idx=1&sn=662ac0666a69cb6eeb821a07e386b247&chksm=8ed24122b9a5c834b8222c1a5ded3063e593fb9df158e08b86fad92aa76e5bd629ef8161028e&scene=21#wechat_redirect)
+> 发布日期：2017-04-19 16:43
+
+ ## 医院检查准备 
 
   
 
