@@ -1,6 +1,6 @@
  
 > 原文地址 [mp.weixin.qq.com](https://mp.weixin.qq.com/s?__biz=MzIwMzA5NTI3NQ==&mid=2649902247&idx=1&sn=43b6582bcb6ac51282ecd1434268aefe&chksm=8ed24123b9a5c835255c7a0436dd41d4077dad8b64e1985aaf2c0ce901d8524d305f325ea2ed&scene=21#wechat_redirect)
-> 发布日期：2017-02-22 21:04:11
+> 发布日期：2017-04-20 09:37
 ---
 
 对于初次怀孕或对第一胎怀孕记得不是很清楚的妈妈，不管看了多少书，听了多少个人的经验，到了自己怀孕，还是会有不知所措的感觉，也怕自己忘记了什么。
