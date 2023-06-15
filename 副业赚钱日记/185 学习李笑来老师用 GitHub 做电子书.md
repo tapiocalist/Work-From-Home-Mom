@@ -1,3 +1,5 @@
+> 原文地址 [mp.weixin.qq.com](https://mp.weixin.qq.com/s/6llpJS8mpDaTg9FESCWooQ)
+> 发布日期： 2023-04-27 20:04
 
 今天，我把我的公众号文章上传到了 GitHub，主要是为了备份我的文章。虽然可能性很小，但万一被 XX 了呢？就模仿[李笑来老师的电子书风格](https://github.com/xiaolai?page=1&tab=repositories)做了一个。
 
